@@ -1,0 +1,7 @@
+![Simulator Screenshot - iPhone 15 Pro Max - 2024-07-26 at 01 32 13](https://github.com/user-attachments/assets/4aeb922e-32aa-43aa-b843-2094b44ee0b3)
+![Simulator Screenshot - iPhone 15 Pro Max - 2024-07-26 at 01 32 12](https://github.com/user-attachments/assets/d75f40b7-e65f-4051-9858-644cde120b04)
+![Simulator Screenshot - iPhone 15 Pro Max - 2024-07-26 at 01 32 10](https://github.com/user-attachments/assets/4247fc3e-0701-4877-8dae-c9163351b07a)
+![Simulator Screenshot - iPhone 15 Pro Max - 2024-07-26 at 01 32 08](https://github.com/user-attachments/assets/676d4987-e58b-4a71-b8ba-b71991728fa4)
+![Simulator Screenshot - iPhone 15 Pro Max - 2024-07-26 at 01 31 57](https://github.com/user-attachments/assets/9199f696-222b-4b7b-912c-88dabc8a38fd)
+![Simulator Screenshot - iPhone 15 Pro Max - 2024-07-26 at 01 31 54](https://github.com/user-attachments/assets/d2a991c3-62a7-4070-9729-aac9b5caaebd)
+![Simulator Screenshot - iPhone 15 Pro Max - 2024-07-26 at 01 31 50](https://github.com/user-attachments/assets/7041e484-e19b-4cec-9974-561e53148950)
